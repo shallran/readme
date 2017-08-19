@@ -1,6 +1,6 @@
 # readme
 开始学习了
-
+每周都有自己的安排
 # Overcome myself
 
 ### no TV
